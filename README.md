@@ -1,4 +1,4 @@
-- 👋 Hello all, I’m @adzankovic
+- 👋 Hello all, I’m @metakkkk
 - I am an MSIT Graduate working as an IT Admin, looking to develop my coding through collaboration on this useful site!
 - 📫 How to reach me: https://www.linkedin.com/in/adnan-dzankovic-3630b2185/
 
